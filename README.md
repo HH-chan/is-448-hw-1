@@ -1,1 +1,1 @@
-super gay and boosted homework
+boosted homework
